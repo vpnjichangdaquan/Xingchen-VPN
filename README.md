@@ -15,7 +15,7 @@
 
 ## 官网注册入口
 
-[星辰VPN官网注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
+[星辰VPN官网注册入口](https://a.wwaann.com/?s=xcvpn)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -367,7 +367,7 @@
 
 # 官方注册入口与使用提示
 
-[星辰VPN官方注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
+[星辰VPN官方注册入口](https://a.wwaann.com/?s=xcvpn)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
